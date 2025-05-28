@@ -1,1 +1,1 @@
-# SayNoToSuicicde
+# SayNoToSuicide
